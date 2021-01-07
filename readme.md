@@ -1,0 +1,1 @@
+The combination of colorful vegetables, black beans, Italian dressing and cheese brings this easy-to-make burrito recipe to the top of the menu list. These tasty burritos are sure to become a new family favourite!
